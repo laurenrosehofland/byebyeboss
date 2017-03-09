@@ -2,4 +2,4 @@
 
 Hello Fellow Learners,
 
-I am really excited about learning how to code! i hope I can become good enough at this to enjoy doing it AND make a living at it.
+I am a little nervous about all of this. What if I'm too old to learn? I am hoping to be able to do this as a new career.
